@@ -1,2 +1,2 @@
 # spiderhikmet
-there is life  there hope
+there is life  there is hope
